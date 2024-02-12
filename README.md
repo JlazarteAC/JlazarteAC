@@ -8,5 +8,5 @@ I’m currently studying at Asian College, taking a Bachelor of Science in Infor
 - 📫 How to reach me:
    - Add Me in [Steam](https://steamcommunity.com/id/dodotmp4) if you need a Game Buddy.
 
--⚡ Fun fact:
+- ⚡ Fun fact:
   - Im a Filipino
