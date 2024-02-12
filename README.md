@@ -6,7 +6,7 @@ I’m currently studying at Asian College, taking a Bachelor of Science in Infor
    - Beginner skill of Php
 
 - 📫 How to reach me:
-       - Add Me in [Steam](https://steamcommunity.com/id/dodotmp4) if you need a Game Buddy.
+   - Add Me in [Steam](https://steamcommunity.com/id/dodotmp4) if you need a Game Buddy.
 
 -⚡ Fun fact:
        - Im a Filipino
