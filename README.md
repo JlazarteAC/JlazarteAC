@@ -3,7 +3,7 @@ I’m currently studying at Asian College, taking a Bachelor of Science in Infor
 
 - 💬 Ask me about in Programming
   - I'm Competence on HTML,CSS, and JS of a Front-end in Website.
-   - Beginner skill of Php
+   - Beginner skills on PHP
 
 - 📫 How to reach me:
    - Add Me in [Steam](https://steamcommunity.com/id/dodotmp4) if you need a Game Buddy.
